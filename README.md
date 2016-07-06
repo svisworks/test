@@ -6,3 +6,4 @@ axs THE SUN and SMILE
 solosolo ikimasuka!
 metaverse!
 OK!nyank!!!
+OKOK!!Yeah!NYANK!!
